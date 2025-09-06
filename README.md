@@ -2,6 +2,7 @@
 <h3>Computer Engineer</h3>
 
 - Reach me: **eray.aates@gmail.com**
+- Graduation project youtube link: **https://www.youtube.com/watch?v=Ks8uGGiH8mI**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
