@@ -3,6 +3,7 @@
 
 - Reach me: **eray.aates@gmail.com**
 - Graduation project youtube link: **https://www.youtube.com/watch?v=Ks8uGGiH8mI**
+- Lokal Kafe play store link: **https://play.google.com/store/apps/details?id=com.lokalkafe.app&utm_source=emea_Med**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
